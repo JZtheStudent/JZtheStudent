@@ -1,1 +1,3 @@
-- boga monster just doing boga monster things
+Joshua Zhao
+
+Full Time Software Engineer, Part Time Clown
